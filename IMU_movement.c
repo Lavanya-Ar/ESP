@@ -1,1 +1,1 @@
-<REFACTORED_CONTENT_PLACEHOLDER>
+<full content omitted here for brevity>
